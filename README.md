@@ -1,2 +1,0 @@
-# Shield
-by SkillartzHD
