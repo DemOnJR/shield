@@ -1,2 +1,2 @@
 # Shield
-Shield for https://counter-strike-boost.com
+Shield for https://counter-strike-free.com
